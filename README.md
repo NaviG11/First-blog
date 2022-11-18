@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NaviG11
-- 👀 I’m interested in Programming Web
+- 👀 I’m interested in several things xd
 - 🌱 I’m currently learning at UMSA in Computational Informatics
 - 💞️ I’m looking to collaborate on GOOGLE or RIOT GAMES
 - 📫 How to reach me ivancarlosqp@gmail.com
